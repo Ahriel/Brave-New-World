@@ -1,3 +1,6 @@
+Edad Oscura
+No hay registro escrito. Época misteriosa en la que fue asentándose todo. Mitológica.
+
 Tiempo antiguo
 =============
 Era de la alquimia
